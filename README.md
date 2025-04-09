@@ -1,1 +1,1 @@
-# Obscure Operating Systems DB - AROS is King!
+# Obscure Operating Systems DB – TempleOS and AROS Are Both Kings!
